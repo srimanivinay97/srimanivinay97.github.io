@@ -1,1 +1,0 @@
-# amazonads.github.io
